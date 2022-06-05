@@ -4,4 +4,4 @@
  
 ---
 
-Working group created to address ongoing issues and the evolution of the Veteran Community Advisor roles.
+Working group created to address ongoing issues and the evolution of the Veteran Proposal Assessor roles.
